@@ -3,6 +3,6 @@
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
 [bandcamp](https://stevedave.bandcamp.com/)
 
-!<p align="center">
-  <img src="[https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/dd72b054-ff4d-48a0-bab8-412fd8c7858e]" />
+<p align="center">
+  <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/dd72b054-ff4d-48a0-bab8-412fd8c7858e"/>
 </p>
