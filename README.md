@@ -8,5 +8,5 @@
 <p></p>
 <p></p>
 <p align="center">
-  <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/e6279ae2-ac45-4bd8-bafc-ee432e4f970d"/>
+  <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/3e9cd674-2317-49cc-b967-cd719189d6d5"/>
 </p>
