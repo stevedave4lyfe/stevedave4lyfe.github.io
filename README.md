@@ -3,7 +3,7 @@
 [spotify](https://open.spotify.com/artist/1nqSO9rSzslDUzkdmts45p)\
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
 [bandcamp](https://stevedave.bandcamp.com/)\
-[tickets](https://www.eventbrite.ca/manage/events/713185746767/tickets)
+[tickets](https://www.eventbrite.ca/manage/events/713185746767/tickets)\
 [other shit](https://msha.ke/stevedave)
 <p></p>
 <p></p>
