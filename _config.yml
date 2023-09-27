@@ -1,2 +1,8 @@
 name: stevedave4lyfe's site 
 title: null
+
+# NPM
+$ npm install spotify-embed
+
+# Yarn
+$ yarn add spotify-embed
