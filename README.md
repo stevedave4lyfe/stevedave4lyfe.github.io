@@ -12,3 +12,4 @@
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/3e9cd674-2317-49cc-b967-cd719189d6d5"/>
 </p>
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/collection/tracks)
