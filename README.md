@@ -3,7 +3,7 @@
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
 [bandcamp](https://stevedave.bandcamp.com/)\
 [tickets](https://www.eventbrite.ca/e/ben-stager-music-and-stevedave-at-the-yeti-tickets-713185746767?aff=oddtdtcreator)\
-[other shit](https://msha.ke/stevedave)
+:[other shit](https://msha.ke/stevedave):
 &nbsp;  
 &nbsp;  
 &nbsp;  
@@ -19,9 +19,6 @@
 </p>
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/dfd63c76-4324-4eea-ac52-93ff9b32ab4d"/>
-</p>
-<p align="center">
-  //[stream stevedave the deluxe album](https://distrokid.com/dashboard/album/?albumuuid=B1034F4C-EEC3-41AC-A41388F6C27D426E)
 </p>
 <p></p>
 <p align="center">
