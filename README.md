@@ -17,12 +17,11 @@
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/8911f32f-f24d-4af5-9fc1-8f7420a29084"/>
 </p>
-
-[other shit](https://msha.ke/stevedave)
-[stream the hand that feeds](https://distrokid.com/dashboard/album/?albumuuid=B1034F4C-EEC3-41AC-A41388F6C27D426E)
-<p style="text-align: center;">POO</p>
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/dfd63c76-4324-4eea-ac52-93ff9b32ab4d"/>
+</p>
+<p align="center">
+  //[stream stevedave the deluxe album](https://distrokid.com/dashboard/album/?albumuuid=B1034F4C-EEC3-41AC-A41388F6C27D426E)
 </p>
 <p></p>
 <p align="center">
