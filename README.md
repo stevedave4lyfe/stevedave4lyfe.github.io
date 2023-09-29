@@ -10,7 +10,11 @@
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/8911f32f-f24d-4af5-9fc1-8f7420a29084"/>
 </p>
-<p></p>
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/dfd63c76-4324-4eea-ac52-93ff9b32ab4d"/>
 </p>
