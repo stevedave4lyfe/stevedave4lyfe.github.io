@@ -4,16 +4,22 @@
 [bandcamp](https://stevedave.bandcamp.com/)\
 [tickets](https://www.eventbrite.ca/e/ben-stager-music-and-stevedave-at-the-yeti-tickets-713185746767?aff=oddtdtcreator)\
 [other shit](https://msha.ke/stevedave)
-<p></p>
-<p></p>
-<p></p>
+
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/8911f32f-f24d-4af5-9fc1-8f7420a29084"/>
 </p>
-&nbsp; 
-&nbsp; 
-&nbsp; 
-&nbsp; 
 &nbsp; 
 <p align="center">
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/dfd63c76-4324-4eea-ac52-93ff9b32ab4d"/>
