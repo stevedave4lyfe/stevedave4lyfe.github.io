@@ -18,7 +18,7 @@
   <img src="https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/8911f32f-f24d-4af5-9fc1-8f7420a29084"/>
 </p>
 <p align="center">
-// Your content
+  //[other shit](https://msha.ke/stevedave)
 </p>
 <p style="text-align: center;">POO</p>
 <p align="center">
