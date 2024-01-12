@@ -1,4 +1,4 @@
-![IMG_9433](https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/f71f41a9-5f5f-440a-8897-2f5ea779b87a)
+![Uploading IMG_8900 3.png…]()
 [spotify](https://open.spotify.com/artist/1nqSO9rSzslDUzkdmts45p)\
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
 [bandcamp](https://stevedave.bandcamp.com/)\
