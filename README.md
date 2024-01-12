@@ -1,4 +1,4 @@
-IMG_8900 3.png
+[IMG_8900 3.png](https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/blob/main/IMG_8900%203.png)
 [spotify](https://open.spotify.com/artist/1nqSO9rSzslDUzkdmts45p)\
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
 [bandcamp](https://stevedave.bandcamp.com/)\
