@@ -1,4 +1,4 @@
-![SD.png](https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/blob/main/SD.png)\
+![SD.png](https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/blob/main/SD.png)
 
 [pre-save Meant2BeShit](https://distrokid.com/hyperfollow/stevedave1/meant2beshit?utm_campaign=website&utm_medium=Email+&utm_source=SendGrid)\
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
