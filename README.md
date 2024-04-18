@@ -1,6 +1,6 @@
 ![SD](https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/ab4616f5-7fb5-4749-9146-d9e734529073)
 
-[pre-save Worry Alone (Feat. Aluminum Garden)(https://distrokid.com/hyperfollow/stevedave1/worry-alone)\
+[pre-save Worry Alone (Feat. Aluminum Garden)](https://distrokid.com/hyperfollow/stevedave1/worry-alone)\
 [stream Meant2BeShit](https://songwhip.com/stevedave/meant2beshit)\
 [Meant2BeShit music video](https://www.youtube.com/watch?v=ickZGRUmUqk)\
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
