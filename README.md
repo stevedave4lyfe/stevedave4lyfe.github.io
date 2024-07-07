@@ -1,9 +1,7 @@
 ![SD](https://github.com/stevedave4lyfe/stevedave4lyfe.github.io/assets/146142867/ab4616f5-7fb5-4749-9146-d9e734529073)
 
-[Infinite Jest release show tickets](https://www.eventbrite.ca/e/infinite-jest-album-release-tickets-903638977507?aff=oddtdtcreator)\
-[pre-save Sports (Feat. neck)](https://distrokid.com/hyperfollow/stevedave1/sports)\
-[stream Worry Alone (Feat. Aluminum Garden)](https://distrokid.com/hyperfollow/stevedave1/worry-alone)\
-[stream Meant2BeShit](https://songwhip.com/stevedave/meant2beshit)\
+[stream Infinite Jest](https://distrokid.com/hyperfollow/stevedave1/infinite-jest)\
+[buy merchandise](https://store.nofuneral.ca/collections/stevedave)\
 [Meant2BeShit music video](https://www.youtube.com/watch?v=ickZGRUmUqk)\
 [apple music](https://music.apple.com/ca/artist/stevedave/1449380033)\
 [spotify](https://open.spotify.com/artist/1nqSO9rSzslDUzkdmts45p)\
